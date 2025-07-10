@@ -1,4 +1,4 @@
 - 👋 Hi, I’m 
 - 👀 I’m interested in spying
-- 🌱 I’m currently learning info abt u
+-
 - 💞️ I’m looking to collabora 911 911 9/11 9/11
